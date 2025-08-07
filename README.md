@@ -26,9 +26,8 @@ Currently learning and experimenting with AI/ML algorithms, and always looking t
 ---
 
 ## 📫 Connect with Me
-- LinkedIn: [Your LinkedIn URL]
-- Email: [Your Email Address]
-
+- LinkedIn: soon
+- Email: khanmoin4947@gmail.com
 ---
 
 Thanks for visiting my profile! 🌟
